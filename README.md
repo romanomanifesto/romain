@@ -4,5 +4,5 @@ I love Graphic design and I'd love to learn more about coding and computation st
 Music wise I love Y2K classics. 🎶🎶🎶
 A fun fact about me is that I've watched the entire serie of the Real Housewives of Beverly Hills, didn't miss a single episode.
 ## ROMANO MANIFESTO 
-Alt-H1ROMANO
+ROMANO
 ======
